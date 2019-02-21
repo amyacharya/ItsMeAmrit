@@ -3,7 +3,7 @@
 Hello. I'm Amrit Acharya.
 Being an Army kid i was born and raised all over India. 
 
-I am the founder of Xobin.
+I love Oreo & Stock Market Trading. I am the founder of Xobin.
 
 
 
